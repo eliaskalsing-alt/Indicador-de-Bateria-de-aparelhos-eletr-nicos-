@@ -1,0 +1,1 @@
+# Indicador-de-Bateria-de-aparelhos-eletr-nicos-
